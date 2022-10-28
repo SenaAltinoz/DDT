@@ -2,14 +2,5 @@ asdffsdfsdafsdfsdafsd
 sdsdafdsafsdfasdfdsf
 dsasklfjslfjsdfg
 dskajdskdjskdjsskdjs
-sjfksdskfhs
-Kdkwkdksksksısksksıs
-kdkskdkskskskkskds
-dldkkdskkskdkskdlsos
-Ddkdkkdkd
-dkkdkdkkdekkdks
-kdkskskkdkskskds
-dsaldşlsfksl
-lfsidlalşdasd
-asldfsşkşlşsfşsdfş
-Kdkdkdkskdıııdısıks
+sjfkfsaokdsaodkoaskdasd
+Bruce <3 Natasha
