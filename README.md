@@ -1,6 +1,1 @@
-KsksksKedleKdkdkkd................................
-.........
 <3
-dddddddddddd
-fdsfsdfsdfsf
-dasdajljljl
