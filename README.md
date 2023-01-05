@@ -1,2 +1,1 @@
-WİCK
-<3
+We killing strangers
