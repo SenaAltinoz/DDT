@@ -17,5 +17,4 @@ I'm a flower blooming in the swamp, I am the beauty itself!
 
 
 
-
-dishonorable sword
+.
