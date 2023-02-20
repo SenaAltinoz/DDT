@@ -25,3 +25,4 @@ to be or not to be
 :(((((((((((((((
 kill me :O
 .......................
+aşk için ölmeli aşk o zaman aşk
