@@ -24,3 +24,4 @@ kill me :O
 ....................................
 aşk için ölmeli aşk o zaman aşk
 :D
+f
