@@ -15,7 +15,9 @@ I'm a flower blooming in the swamp, I am the beauty itself!
 to be or not to be 
 
 :D :D :D :D
-dddddddddddd
+
 :D :D :D :D 
 
 :D :D :D :D
+
+Eyüpümmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 
