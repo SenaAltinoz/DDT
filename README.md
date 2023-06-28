@@ -20,3 +20,5 @@ to be or not to be
 :D :D :D :D
 
 Eyüpümmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3
+
+şarkılar ve rakı var kokun kadar keskin.
