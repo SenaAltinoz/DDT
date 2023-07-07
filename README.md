@@ -13,14 +13,11 @@ I'm a flower blooming in the swamp, I am the beauty itself!
 
 Savaş yanlısı saçlarından...
 
-to be or not to be 
-
-:D :D :D :D 
-
-:D :D :D :D
 
 Eyüpümmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3
 
+
 şarkılar ve rakı var kokun kadar keskin.
 
-<3 <3 :D D:D
+
+something in the way
