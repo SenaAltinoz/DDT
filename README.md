@@ -20,4 +20,4 @@ Eyüpümmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm <3 <3 <3 <3 <3 <3
 şarkılar ve rakı var kokun kadar keskin.
 
 
-something in the way
+something in the way........
