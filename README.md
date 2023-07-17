@@ -12,7 +12,7 @@ So we don't kill the ones that we love
 I'm a flower blooming in the swamp, I am the beauty itself!
 
 Savaş yanlısı saçlarından...
-
+dddddddddddddddddd
 
 Eyüpümmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3
 
