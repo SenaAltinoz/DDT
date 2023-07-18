@@ -3,7 +3,6 @@ So we don't kill the ones that we love
      And we got guns, we got guns
 :)
 :/
-<3
 1- Beauty hurts!
 2- The value of life is only understood when you give it away.
 3- Happiness is hidden in the moment before I fire my gun!                    
@@ -11,14 +10,6 @@ So we don't kill the ones that we love
                     
 I'm a flower blooming in the swamp, I am the beauty itself!
 
-Savaş yanlısı saçlarından...
-dddddddddddddddddd
-
-Eyüpümmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3
-
-
 şarkılar ve rakı var kokun kadar keskin.
 
-
-something in the way.......................................
-dddddddd
+Biri beni görsün, biri beni duysun
