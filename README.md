@@ -13,4 +13,4 @@ I'm a flower blooming in the swamp, I am the beauty itself!
 şarkılar ve rakı var kokun kadar keskin.
 
 onursal meraba canım
-Alle warten auf das Licht
+Alle warten auf das Licht nnn
