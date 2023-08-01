@@ -17,7 +17,4 @@ onursal meraba canım
 Alle warten auf das Licht 
 
 Eyüpüüüüüüüüüümmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmmm
-
-
-Yelkenler biçilecek
-.....................
+<3 <3 <3 <3 <3 <3 <3 <3
