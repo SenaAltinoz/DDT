@@ -1,7 +1,7 @@
-.......................We killing strangers
+We killing strangers
 So we don't kill the ones that we love
      And we got guns, we got guns
-:)ssssssssssssssssss
+:)
 :/
 1- Beauty hurts!
 2- The value of life is only understood when you give it away.
