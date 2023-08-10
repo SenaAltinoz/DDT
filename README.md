@@ -11,7 +11,7 @@ Değişmiyor yazdıklarım, gördüklerim hep garip
 
 
 
-kaçınca hep karşıma çıktı
+kaçınca hep karşıma çıktı ????????
 
 
 
