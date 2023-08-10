@@ -10,6 +10,12 @@ Eyüpüüüüüüüüüümmmmmmmmmmmmmmmmmm
 Değişmiyor yazdıklarım, gördüklerim hep garip
 
 
+
+kaçınca hep karşıma çıktı
+
+
+
+
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⣾⣿⣿⡀
 ⠀⠀⠀⠀⠀⠀⠀⢀⣤⣶⣿⣿⣿⣿⣿⣿⣷⣦⡀
 ⠀⠀⠀⠀⢀⣤⣾⣿⣿⣿⣿⣿⣿⣿⣿⣾⣿⣿⣿⣷⣶⣶⣶⣦⣤
@@ -31,6 +37,8 @@ Değişmiyor yazdıklarım, gördüklerim hep garip
 ⠰⢼⣿⣿⣿⡇⠀⢸⣿⣿⣿⣿⣿⣶⢀⣌⣻⣿⣿⣿⣿⣿⣿⣿⡂ 
 ⠀⢘⣿⣿⣿⣿⣄⠀⠻⢿⣿⣿⢟⣿⣾⣿⣿⣿⣿⡿⠿⠿⠛⠛⠓ 
 ⠀⠀⠈⠉⠿⠿⠉⠑⢤⣤⡤⠂⠛⣹⠀⠀⠀⢀⣆⣤
+
+
 
 
 
