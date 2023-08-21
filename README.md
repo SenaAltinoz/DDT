@@ -11,7 +11,6 @@ Değişmiyor yazdıklarım, gördüklerim hep garip
 
 ...
 
-
 kaçınca hep karşıma çıktı??
           bu kaçıncı rüya aklım karıştı!
 
@@ -43,6 +42,5 @@ kaçınca hep karşıma çıktı??
 
 
 
-
-
+beş karıştı bana bakan suratlar
 
