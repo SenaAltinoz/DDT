@@ -42,5 +42,5 @@ kaçınca hep karşıma çıktı??
 
 
 
-beş karıştı bana bakan suratlar
+beş karıştı bana bakan suratlar O_o
 
