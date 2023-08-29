@@ -9,9 +9,7 @@ Eyüpüüüüüüüüüümmmmmmmmmmmmmmmmmm
 
 
 
-...
-...
-
+overpick'ler atıldı mı
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⣾⣿⣿⡀
 ⠀⠀⠀⠀⠀⠀⠀⢀⣤⣶⣿⣿⣿⣿⣿⣿⣷⣦⡀
