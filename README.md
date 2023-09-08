@@ -1,4 +1,4 @@
-.........Eyüpüüüüüüüüüümmmmmmmmmmmmmmmmmm
+Eyüpüüüüüüüüüümmmmmmmmmmmmmmmmmm
 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 <3 
 
 1- Beauty hurts!
@@ -8,8 +8,6 @@
                     I'm a flower blooming in the swamp, I am the beauty itself!
 
 
-....
-overpick'ler atıldı mı ?D:....
 
 ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⢀⣾⣿⣿⡀
 ⠀⠀⠀⠀⠀⠀⠀⢀⣤⣶⣿⣿⣿⣿⣿⣿⣷⣦⡀
