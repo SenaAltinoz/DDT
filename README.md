@@ -1,1 +1,5 @@
+
+
+aşkın yakar her zerremi
+
 :/
