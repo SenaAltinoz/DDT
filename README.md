@@ -1,5 +1,5 @@
 ....:D
 
-aşkın yakar her zerremi
+aşkın yakar her zerremi "E"
 
-:/
+
