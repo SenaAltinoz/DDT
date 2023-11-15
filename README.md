@@ -1,1 +1,1 @@
-ah lan
+Güneş bizimle doğar
