@@ -1,2 +1,1 @@
-fahri kürt
-:)
+ah lan
