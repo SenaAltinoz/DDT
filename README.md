@@ -1,2 +1,2 @@
-unutkanlık
+.unutkanlık
 :/
