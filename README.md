@@ -1,3 +1,4 @@
+.uykusuzluk
 .tükenmişlik
 .unutkanlık
 :/
